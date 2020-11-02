@@ -23,5 +23,13 @@ Here are some ideas to get you started:
 - :hammer: Creator of applications and frameworks
 - :ram: Founder the ObjCCN
 - :meat_on_bone: Meat lover
+
 Java后端开发工程师
 向上爬的蜗牛🐌
+
+### Contract me 📱
+
+1. 博客： www.codekop.cn
+2. QQ： 364825466
+
+### Project
